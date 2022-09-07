@@ -1,0 +1,2 @@
+# .github
+Vitna Media is a digital agency with a mission to help businesses &amp; nonprofits grow through digital technology. We amplify your brand by providing the best services in graphic design(logo design, flyer design &amp; branding), Website design, Software Development, and Digital marketing(SEO, Facebook &amp; Instagram ads); We also provide Staff Training in Graphic design, web development and digital marketing.
